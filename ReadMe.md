@@ -1,4 +1,5 @@
-![hoshin (1)](https://github.com/user-attachments/assets/354ba6bb-106a-43a5-aa36-bbcf2ecfaa97)
+![hoshin (2)](https://github.com/user-attachments/assets/06fb532b-e3f2-4db0-99aa-3abe3c17a6f5)
+
 
 # 👋 Hello World! I'm Wes:
 IT student at CLSU
